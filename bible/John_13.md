@@ -63,3 +63,16 @@ disciples.
 * Again, showing how important we are to God. Jesus is an extension of God. We are an extension of Jesus. If someone
     believes what a true follower of Christ says, then it is as if they are listening to God. We are "made in God's
     image" after all!
+
+## Learnings
+1. Maybe it doesn't matter what we build here on earth, in terms of human structures that put people in groups or a
+   hierarchy. It makes me think specifically of politics. We have all of this structure that puts certain people in more
+   power than others, mostly based on their ability to spend lots and lots of money. Got doesn't care about that. I
+   mean, if we are providing justice to his people on earth, I'm sure he is happy, but if it's just for the sake of
+   "lording over others" or being able to push one's own agenda instead of for the justice of others and the speading of
+   the good news of Jesus Christ, I really don't think God cares. Just LOVE people. We don't have to agree on
+   everything. You don't need to read every piece of news and research the full background of everything before making a
+   decision. Just live by the most important commandment to Love God and love your neighbor as yourself. And while we're
+   here, `agape` them. Not this "I love you" and walk away. True empathy. Jesus weeped for the poor of spirit--we should
+   be doing that. When someone is mean to them, we should feel the pain and sorrow that God feels for that person, not
+   anger. 
