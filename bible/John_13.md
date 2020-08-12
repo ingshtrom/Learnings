@@ -63,6 +63,14 @@
     believes what a true follower of Christ says, then it is as if they are listening to God. We are "made in God's
     image" after all!
 
+## 21-38
+Jesus first says one of the 12 disciples will betray them. He even points that person out to be Judas, but no one
+understands this, except likely Judas and of course Jesus. Now the disciples are confused and he adds further gas to the
+fire of confusion by telling them that he is about to go somewhere an no one will be able to follow him, at least for
+now! Can you imagine just how confusing that might be? Not only confusing, but you likely still think you are losing
+your Lord and Savior, since many people still believed Jesus, or whatever prophet would come would be a physical king
+over the Jewish nation, not a King of the Universe, like Jesus is.
+
 ## Learnings
 1. Maybe it doesn't matter what we build here on earth, in terms of human structures that put people in groups or a
    hierarchy. It makes me think specifically of politics. We have all of this structure that puts certain people in more
